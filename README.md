@@ -1,1 +1,1 @@
-adding a new update and it is a mandetory one. Wgen it is out update to it or you will not be able to talk with your freinds
+New update time guys. This update changed the default room code so if you wanna talk to your friends, you need to be on the latest version.
